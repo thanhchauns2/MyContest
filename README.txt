@@ -1,1 +1,0 @@
-Minor Contest 3.
